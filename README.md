@@ -14,4 +14,4 @@ If someone is looking to open a new business, a restaurant or superstore, s/he w
 
 ##### 1.3. Interest
 
-New investors who is looking to start a new restaurant business or existing business holders who is looking to expand their footprints in other neighborhoods of Bangalore
+New investors who are looking to start a new restaurant business or existing business holders who are looking to expand their footprints in other neighborhoods of Bangalore
